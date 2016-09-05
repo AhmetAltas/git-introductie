@@ -1,15 +1,15 @@
-Over Bailey :)
+Over Ahmet :D
 
-Voornaam: Bailey
+Voornaam: Ahmet
 
-Tussenvoegsel: van
+Tussenvoegsel: 
 
-Achternaam: Antwerpen
+Achternaam: Altas
 
-Woonplaats: Zwijndrecht
+Woonplaats: Gorinchem
 
-E-mail: 99041848@mydavinci.nl
+E-mail: 99040436@mydavinci.nl
 
-Prive E-mail: baileyzx12@gmail.com
+Prive E-mail: ahmet.8@hotmail.nl
 
-Telefoonnummer: 06-39110472
+Telefoonnummer: 06- 87 75 63 85
